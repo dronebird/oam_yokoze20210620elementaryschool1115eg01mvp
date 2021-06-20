@@ -1,0 +1,1 @@
+# oam_yokoze20210620elementaryschool1115eg01mvp
